@@ -13,3 +13,4 @@
 > “Friends don't lie.” – Eleven
 
 ![Stranger Things](https://upload.wikimedia.org/wikipedia/en/f/f7/Stranger_Things_season_4.jpg)
+https://encrypted-tbn1.gstatic.com/images?q=tbn:ANd9GcSH03d-vax13uZUm5sUUOgNMhnSJTuZ2o92yizNl7NXdw9K8qWI
